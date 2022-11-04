@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-05 | [Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_EN-IN4509616425_UHD.jpg) 
+
 2022-11-02 | [Tea plantations in Munnar, Kerala, India (© Mazur Travel/Shutterstock)](https://global.bing.com/th?id=OHR.TeaPlantationsMunnar_EN-IN6708509609_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
