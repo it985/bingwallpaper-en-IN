@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-08 | [Golden Temple in Amritsar, Punjab, India (© epics.ca/Getty Images)](https://global.bing.com/th?id=OHR.GoldenTemplePunjab_EN-IN9163263543_UHD.jpg) 
+
 2022-11-07 | [Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)](https://global.bing.com/th?id=OHR.CrestedButteEclispe_EN-IN9293713189_UHD.jpg) 
 
 2022-11-06 | [Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_EN-IN5943628545_UHD.jpg) 
