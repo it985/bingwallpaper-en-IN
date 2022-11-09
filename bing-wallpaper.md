@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-10 | [Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_EN-IN8659016190_UHD.jpg) 
+
 2022-11-09 | [European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_EN-IN8074931663_UHD.jpg) 
 
 2022-11-08 | [Golden Temple in Amritsar, Punjab, India (© epics.ca/Getty Images)](https://global.bing.com/th?id=OHR.GoldenTemplePunjab_EN-IN9163263543_UHD.jpg) 
