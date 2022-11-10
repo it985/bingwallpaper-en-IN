@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-11 | [Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.MountAbu_EN-IN9235554332_UHD.jpg) 
+
 2022-11-10 | [Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_EN-IN8659016190_UHD.jpg) 
 
 2022-11-09 | [European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_EN-IN8074931663_UHD.jpg) 
