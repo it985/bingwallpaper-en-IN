@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-13 | [Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.FosterCoveredBridge_EN-IN9279266132_UHD.jpg) 
+
 2022-11-12 | [Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_EN-IN9562184202_UHD.jpg) 
 
 2022-11-11 | [Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.MountAbu_EN-IN9235554332_UHD.jpg) 
