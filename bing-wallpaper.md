@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_EN-IN0204571624_UHD.jpg) 
+
 2022-11-13 | [Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.FosterCoveredBridge_EN-IN9279266132_UHD.jpg) 
 
 2022-11-12 | [Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_EN-IN9562184202_UHD.jpg) 
