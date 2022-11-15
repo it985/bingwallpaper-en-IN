@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-16 | [Cliff dwellings in Mesa Verde National Park in Colorado, USA (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_EN-IN0976809645_UHD.jpg) 
+
 2022-11-15 | [North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_EN-IN0625737183_UHD.jpg) 
 
 2022-11-14 | [Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_EN-IN0204571624_UHD.jpg) 
