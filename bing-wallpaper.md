@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-18 | [The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_EN-IN9111194134_UHD.jpg) 
+
 2022-11-17 | [Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_EN-IN1387365715_UHD.jpg) 
 
 2022-11-16 | [Cliff dwellings in Mesa Verde National Park in Colorado, USA (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_EN-IN0976809645_UHD.jpg) 
