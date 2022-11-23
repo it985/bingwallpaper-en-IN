@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)](https://global.bing.com/th?id=OHR.RovinjCroatia_EN-IN5575438445_UHD.jpg) 
+
 2022-11-23 | [Sunflower (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_EN-IN4868983337_UHD.jpg) 
 
 2022-11-22 | [Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_EN-IN4295260812_UHD.jpg) 
