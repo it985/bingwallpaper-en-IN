@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-26 | [Sunset at Vidhana Soudha (State Legislature Building) in Bangalore, India (© Artie Photography/Getty Images)](https://global.bing.com/th?id=OHR.VidhanaSoudha_EN-IN5543965189_UHD.jpg) 
+
 2022-11-25 | [An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_EN-IN2858135320_UHD.jpg) 
 
 2022-11-24 | [The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)](https://global.bing.com/th?id=OHR.RovinjCroatia_EN-IN5575438445_UHD.jpg) 
