@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-27 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_EN-IN6595144388_UHD.jpg) 
+
 2022-11-26 | [Sunset at Vidhana Soudha (State Legislature Building) in Bangalore, India (© Artie Photography/Getty Images)](https://global.bing.com/th?id=OHR.VidhanaSoudha_EN-IN5543965189_UHD.jpg) 
 
 2022-11-25 | [An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_EN-IN2858135320_UHD.jpg) 
