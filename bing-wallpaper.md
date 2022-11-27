@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-28 | [Mars (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_EN-IN3181768065_UHD.jpg) 
+
 2022-11-27 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_EN-IN6595144388_UHD.jpg) 
 
 2022-11-26 | [Sunset at Vidhana Soudha (State Legislature Building) in Bangalore, India (© Artie Photography/Getty Images)](https://global.bing.com/th?id=OHR.VidhanaSoudha_EN-IN5543965189_UHD.jpg) 
