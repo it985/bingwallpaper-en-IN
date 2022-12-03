@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [Indian Navy sailors doing rehearsal for Navy Day celebrations in Mumbai, India (© Punit Paranjpe/AFP via Getty Images)](https://global.bing.com/th?id=OHR.IndianNavyDay_EN-IN3784147092_UHD.jpg) 
+
 2022-12-03 | [Miami, Florida (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_EN-IN6260623048_UHD.jpg) 
 
 2022-11-28 | [Mars (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_EN-IN3181768065_UHD.jpg) 
