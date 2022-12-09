@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-10 | [Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_EN-IN5897824225_UHD.jpg) 
+
 2022-12-09 | [Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_EN-IN5607249658_UHD.jpg) 
 
 2022-12-05 | [Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)](https://global.bing.com/th?id=OHR.StNick_EN-IN7060176985_UHD.jpg) 
