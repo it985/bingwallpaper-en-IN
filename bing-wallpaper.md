@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-11 | [Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_EN-IN6906961190_UHD.jpg) 
+
 2022-12-10 | [Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_EN-IN5897824225_UHD.jpg) 
 
 2022-12-09 | [Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_EN-IN5607249658_UHD.jpg) 
