@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-13 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_EN-IN6602551529_UHD.jpg) 
+
 2022-12-12 | [Poinsettia plants (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_EN-IN6279434401_UHD.jpg) 
 
 2022-12-11 | [Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_EN-IN6906961190_UHD.jpg) 
