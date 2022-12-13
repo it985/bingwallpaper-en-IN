@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [Bamboo trees in Guwahati, Assam, India (© Page bazar/500px/Getty Images)](https://global.bing.com/th?id=OHR.BambooTreesIndiaa_EN-IN7883672164_UHD.jpg) 
+
 2022-12-13 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_EN-IN6602551529_UHD.jpg) 
 
 2022-12-12 | [Poinsettia plants (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_EN-IN6279434401_UHD.jpg) 
