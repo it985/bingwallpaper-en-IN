@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_EN-IN7206985735_UHD.jpg) 
+
 2022-12-14 | [Bamboo trees in Guwahati, Assam, India (© Page bazar/500px/Getty Images)](https://global.bing.com/th?id=OHR.BambooTreesIndiaa_EN-IN7883672164_UHD.jpg) 
 
 2022-12-13 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_EN-IN6602551529_UHD.jpg) 
