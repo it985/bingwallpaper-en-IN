@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-16 | [Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_EN-IN2588307619_UHD.jpg) 
+
 2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_EN-IN7206985735_UHD.jpg) 
 
 2022-12-14 | [Bamboo trees in Guwahati, Assam, India (© Page bazar/500px/Getty Images)](https://global.bing.com/th?id=OHR.BambooTreesIndiaa_EN-IN7883672164_UHD.jpg) 
