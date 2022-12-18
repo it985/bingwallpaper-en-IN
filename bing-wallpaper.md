@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-19 | [Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)](https://global.bing.com/th?id=OHR.DudhsagarFallsGoa_EN-IN2838572674_UHD.jpg) 
+
 2022-12-18 | [South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_EN-IN4520552112_UHD.jpg) 
 
 2022-12-17 | [Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_EN-IN4281118951_UHD.jpg) 
