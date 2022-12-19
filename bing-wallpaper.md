@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-20 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_EN-IN3313167827_UHD.jpg) 
+
 2022-12-19 | [Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)](https://global.bing.com/th?id=OHR.DudhsagarFallsGoa_EN-IN2838572674_UHD.jpg) 
 
 2022-12-18 | [South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_EN-IN4520552112_UHD.jpg) 
