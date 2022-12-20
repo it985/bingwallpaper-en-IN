@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-21 | [Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_EN-IN7169031436_UHD.jpg) 
+
 2022-12-20 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_EN-IN3313167827_UHD.jpg) 
 
 2022-12-19 | [Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)](https://global.bing.com/th?id=OHR.DudhsagarFallsGoa_EN-IN2838572674_UHD.jpg) 
