@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-22 | [Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-IN7621301328_UHD.jpg) 
+
 2022-12-21 | [Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_EN-IN7169031436_UHD.jpg) 
 
 2022-12-20 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_EN-IN3313167827_UHD.jpg) 
