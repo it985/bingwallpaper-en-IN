@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-24 | [Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_EN-IN0530683542_UHD.jpg) 
+
 2022-12-23 | [Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_EN-IN9723254322_UHD.jpg) 
 
 2022-12-22 | [Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-IN7621301328_UHD.jpg) 
