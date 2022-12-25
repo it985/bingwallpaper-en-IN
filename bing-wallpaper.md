@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-26 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_EN-IN6607580753_UHD.jpg) 
+
 2022-12-25 | [Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_EN-IN6036619973_UHD.jpg) 
 
 2022-12-24 | [Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_EN-IN0530683542_UHD.jpg) 
