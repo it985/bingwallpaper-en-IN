@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-27 | [Nagarhole National Park in Karnataka, India (© Vivek BR/Shutterstock)](https://global.bing.com/th?id=OHR.NagarholeNationalPark_EN-IN4004440507_UHD.jpg) 
+
 2022-12-26 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_EN-IN6607580753_UHD.jpg) 
 
 2022-12-25 | [Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_EN-IN6036619973_UHD.jpg) 
