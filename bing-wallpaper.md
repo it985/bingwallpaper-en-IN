@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-29 | [A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_EN-IN8242290017_UHD.jpg) 
+
 2022-12-28 | [Maloja, Switzerland (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_EN-IN7871621684_UHD.jpg) 
 
 2022-12-27 | [Nagarhole National Park in Karnataka, India (© Vivek BR/Shutterstock)](https://global.bing.com/th?id=OHR.NagarholeNationalPark_EN-IN4004440507_UHD.jpg) 
