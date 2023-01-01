@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-02 | [Hohenzollern Castle, Germany (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_EN-IN6368229470_UHD.jpg) 
+
 2023-01-01 | [Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_EN-IN6052154590_UHD.jpg) 
 
 2022-12-31 | [New Year's Eve fireworks, Sydney Harbour Bridge in Sydney, Australia (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_EN-IN5785868049_UHD.jpg) 
