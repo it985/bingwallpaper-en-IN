@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-03 | [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_EN-IN8423459941_UHD.jpg) 
+
 2023-01-02 | [Hohenzollern Castle, Germany (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_EN-IN6368229470_UHD.jpg) 
 
 2023-01-01 | [Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_EN-IN6052154590_UHD.jpg) 
