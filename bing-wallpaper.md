@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-11 | ['Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_EN-IN3686587993_UHD.jpg) 
+
 2023-01-10 | [Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_EN-IN2980113673_UHD.jpg) 
 
 2023-01-09 | [Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_EN-IN2393478643_UHD.jpg) 
