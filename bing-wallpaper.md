@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-12 | [Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_EN-IN4199617133_UHD.jpg) 
+
 2023-01-11 | ['Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_EN-IN3686587993_UHD.jpg) 
 
 2023-01-10 | [Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_EN-IN2980113673_UHD.jpg) 
