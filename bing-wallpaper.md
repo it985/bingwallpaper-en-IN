@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-14 | [Colourful kites in Ahmedabad, Gujarat, India (© Anand Purohit/Getty Images)](https://global.bing.com/th?id=OHR.KitesLohriIndia_EN-IN5360053667_UHD.jpg) 
+
 2023-01-13 | [Giant kelp in Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_EN-IN4130711464_UHD.jpg) 
 
 2023-01-12 | [Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_EN-IN4199617133_UHD.jpg) 
