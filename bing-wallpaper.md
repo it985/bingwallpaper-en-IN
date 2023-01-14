@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-15 | [Aura River in Turku, Finland (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_EN-IN9478951244_UHD.jpg) 
+
 2023-01-14 | [Colourful kites in Ahmedabad, Gujarat, India (© Anand Purohit/Getty Images)](https://global.bing.com/th?id=OHR.KitesLohriIndia_EN-IN5360053667_UHD.jpg) 
 
 2023-01-13 | [Giant kelp in Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_EN-IN4130711464_UHD.jpg) 
