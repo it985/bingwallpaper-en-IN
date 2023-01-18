@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-19 | [Park City, Utah (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_EN-IN4156395543_UHD.jpg) 
+
 2023-01-18 | [White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_EN-IN3039579374_UHD.jpg) 
 
 2023-01-17 | [Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_EN-IN6053760695_UHD.jpg) 
