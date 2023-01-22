@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_EN-IN1303011589_UHD.jpg) 
+
 2023-01-22 | [Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_EN-IN7844719678_UHD.jpg) 
 
 2023-01-21 | [Kangaroo mother and baby (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_EN-IN7247049713_UHD.jpg) 
