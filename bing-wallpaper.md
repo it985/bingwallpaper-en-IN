@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-26 | [Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)](https://global.bing.com/th?id=OHR.RepublicDayIndia_EN-IN3615309458_UHD.jpg) 
+
 2023-01-25 | [Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_EN-IN3525556475_UHD.jpg) 
 
 2023-01-24 | [Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_EN-IN1640555463_UHD.jpg) 
