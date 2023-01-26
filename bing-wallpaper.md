@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-27 | [Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_EN-IN0543643621_UHD.jpg) 
+
 2023-01-26 | [Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)](https://global.bing.com/th?id=OHR.RepublicDayIndia_EN-IN3615309458_UHD.jpg) 
 
 2023-01-25 | [Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_EN-IN3525556475_UHD.jpg) 
