@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-28 | [Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_EN-IN7452077068_UHD.jpg) 
+
 2023-01-27 | [Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_EN-IN0543643621_UHD.jpg) 
 
 2023-01-26 | [Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)](https://global.bing.com/th?id=OHR.RepublicDayIndia_EN-IN3615309458_UHD.jpg) 
