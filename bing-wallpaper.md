@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-30 | [Ice and snow sailing European Championship on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_EN-IN8180074749_UHD.jpg) 
+
 2023-01-29 | [Blackbird in Essex, England (© Bill Coster/Alamy)](https://global.bing.com/th?id=OHR.BlackbirdDay_EN-IN7823389227_UHD.jpg) 
 
 2023-01-28 | [Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_EN-IN7452077068_UHD.jpg) 
