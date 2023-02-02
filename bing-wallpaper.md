@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-03 | [Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_EN-IN1368877806_UHD.jpg) 
+
 2023-02-02 | [Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_EN-IN0846491116_UHD.jpg) 
 
 2023-02-01 | [The Château de Pierrefonds in the Oise department of Picardy, France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_EN-IN9910172594_UHD.jpg) 
