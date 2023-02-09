@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-10 | [Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_EN-IN7766735984_UHD.jpg) 
+
 2023-02-09 | [Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_EN-IN0938240808_UHD.jpg) 
 
 2023-02-08 | [Ureddplassen rest area on the Helgelandskysten Norwegian Scenic Route, Norway (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_EN-IN8211082251_UHD.jpg) 
