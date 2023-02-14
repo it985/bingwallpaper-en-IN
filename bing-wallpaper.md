@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-15 | [Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_EN-IN8522077079_UHD.jpg) 
+
 2023-02-14 | [Valentine’s Day (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_EN-IN8409373034_UHD.jpg) 
 
 2023-02-13 | [Achaches lookout, Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_EN-IN8236419836_UHD.jpg) 
