@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-16 | ['Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_EN-IN8755954211_UHD.jpg) 
+
 2023-02-15 | [Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_EN-IN8522077079_UHD.jpg) 
 
 2023-02-14 | [Valentine’s Day (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_EN-IN8409373034_UHD.jpg) 
