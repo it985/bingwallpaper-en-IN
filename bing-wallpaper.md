@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-19 | [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_EN-IN2520219218_UHD.jpg) 
+
 2023-02-18 | [Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_EN-IN9031390028_UHD.jpg) 
 
 2023-02-17 | [Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_EN-IN8909281826_UHD.jpg) 
