@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-20 | [A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_EN-IN5907653699_UHD.jpg) 
+
 2023-02-19 | [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_EN-IN2520219218_UHD.jpg) 
 
 2023-02-18 | [Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_EN-IN9031390028_UHD.jpg) 
