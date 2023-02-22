@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-23 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_EN-IN2809559115_UHD.jpg) 
+
 2023-02-22 | [Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)](https://global.bing.com/th?id=OHR.GlassOctopus_EN-IN5956583508_UHD.jpg) 
 
 2023-02-21 | [French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_EN-IN2690617612_UHD.jpg) 
