@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-24 | [Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_EN-IN4393298463_UHD.jpg) 
+
 2023-02-23 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_EN-IN2809559115_UHD.jpg) 
 
 2023-02-22 | [Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)](https://global.bing.com/th?id=OHR.GlassOctopus_EN-IN5956583508_UHD.jpg) 
