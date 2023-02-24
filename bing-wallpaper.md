@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-25 | [Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_EN-IN2070948821_UHD.jpg) 
+
 2023-02-24 | [Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_EN-IN4393298463_UHD.jpg) 
 
 2023-02-23 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_EN-IN2809559115_UHD.jpg) 
