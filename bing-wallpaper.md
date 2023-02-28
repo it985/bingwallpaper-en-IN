@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-01 | [Village of Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SanMartinoVillage_EN-IN2402786658_UHD.jpg) 
+
 2023-02-28 | [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_EN-IN2291116818_UHD.jpg) 
 
 2023-02-27 | [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_EN-IN2230168012_UHD.jpg) 
