@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-08 | [Holi celebrations, Nandgaon, Uttar Pradesh, India (© Avishek Das/Getty Images)](https://global.bing.com/th?id=OHR.IndiaNandGaonHoli_EN-IN5494027395_UHD.jpg) 
+
 2023-03-07 | [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_EN-IN2810579447_UHD.jpg) 
 
 2023-03-06 | [Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_EN-IN2749043988_UHD.jpg) 
