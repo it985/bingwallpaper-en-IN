@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-09 | [Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_EN-IN2981739556_UHD.jpg) 
+
 2023-03-08 | [Holi celebrations, Nandgaon, Uttar Pradesh, India (© Avishek Das/Getty Images)](https://global.bing.com/th?id=OHR.IndiaNandGaonHoli_EN-IN5494027395_UHD.jpg) 
 
 2023-03-07 | [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_EN-IN2810579447_UHD.jpg) 
