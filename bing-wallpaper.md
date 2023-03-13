@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-14 | [Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_EN-IN6885358650_UHD.jpg) 
+
 2023-03-13 | [Lionesses sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)](https://global.bing.com/th?id=OHR.LionessesNap_EN-IN6982805730_UHD.jpg) 
 
 2023-03-12 | [National Theatre, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_EN-IN7062901400_UHD.jpg) 
