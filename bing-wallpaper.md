@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-16 | [Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://global.bing.com/th?id=OHR.ChengduPanda_EN-IN6734741630_UHD.jpg) 
+
 2023-03-15 | [Underwater river scene with freshwater plants and tetra fish, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.AquarioNatural_EN-IN6876909574_UHD.jpg) 
 
 2023-03-14 | [Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_EN-IN6885358650_UHD.jpg) 
