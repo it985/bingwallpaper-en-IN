@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-28 | [Milky Way above Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_EN-IN8169691025_UHD.jpg) 
+
 2023-03-27 | [New York City skyline in fog (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_EN-IN8049510412_UHD.jpg) 
 
 2023-03-26 | [Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)](https://global.bing.com/th?id=OHR.WildAnza_EN-IN7931944154_UHD.jpg) 
