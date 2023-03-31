@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-01 | [Javan tree frog (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_EN-IN8624430207_UHD.jpg) 
+
 2023-03-31 | [Steyr River, Austria (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_EN-IN8520980811_UHD.jpg) 
 
 2023-03-30 | [Peacock feathers (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_EN-IN8331887553_UHD.jpg) 
