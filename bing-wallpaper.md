@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-03 | [India Aerial view above of Agra Fort (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AgraFort_EN-IN2182877120_UHD.jpg) 
+
 2023-04-02 | [Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_EN-IN1237578882_UHD.jpg) 
 
 2023-04-01 | [Javan tree frog (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_EN-IN8624430207_UHD.jpg) 
