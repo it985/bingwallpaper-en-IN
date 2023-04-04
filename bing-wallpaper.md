@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-05 | [Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_EN-IN4229465462_UHD.jpg) 
+
 2023-04-04 | [Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_EN-IN3805962366_UHD.jpg) 
 
 2023-04-03 | [India Aerial view above of Agra Fort (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AgraFort_EN-IN2182877120_UHD.jpg) 
