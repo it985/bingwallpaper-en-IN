@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-09 | [Sunrise over misty lavender fields (© Amith Nag Photography/Getty Images Plus)](https://global.bing.com/th?id=OHR.Honnavaralavenderfields_EN-IN5301295864_UHD.jpg) 
+
 2023-04-08 | [The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_EN-IN3889498881_UHD.jpg) 
 
 2023-04-07 | [Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_EN-IN5758206961_UHD.jpg) 
