@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-14 | [Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_EN-IN6663264044_UHD.jpg) 
+
 2023-04-13 | [Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_EN-IN8419741761_UHD.jpg) 
 
 2023-04-12 | [Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_EN-IN9083252103_UHD.jpg) 
