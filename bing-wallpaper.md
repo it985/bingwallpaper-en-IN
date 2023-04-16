@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-17 | [Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_EN-IN2012624534_UHD.jpg) 
+
 2023-04-16 | [Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_EN-IN0242153620_UHD.jpg) 
 
 2023-04-15 | [Ornate arcade at the Red Fort of Delhi, India (© Andrew Palmer/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TheRedFort_EN-IN6931818397_UHD.jpg) 
