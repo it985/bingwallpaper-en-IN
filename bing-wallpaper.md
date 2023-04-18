@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-19 | [Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_EN-IN6244299700_UHD.jpg) 
+
 2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_EN-IN6402090546_UHD.jpg) 
 
 2023-04-17 | [Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_EN-IN2012624534_UHD.jpg) 
