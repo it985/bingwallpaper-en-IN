@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-21 | [Procida, Italy (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_EN-IN2774777821_UHD.jpg) 
+
 2023-04-20 | [Belted Galloway cows in Scotland (© JohnFScott/Getty Images)](https://global.bing.com/th?id=OHR.BeltedGalloway_EN-IN4523698216_UHD.jpg) 
 
 2023-04-19 | [Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_EN-IN6244299700_UHD.jpg) 
