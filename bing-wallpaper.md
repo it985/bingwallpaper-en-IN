@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-22 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_EN-IN2991531314_UHD.jpg) 
+
 2023-04-21 | [Procida, Italy (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_EN-IN2774777821_UHD.jpg) 
 
 2023-04-20 | [Belted Galloway cows in Scotland (© JohnFScott/Getty Images)](https://global.bing.com/th?id=OHR.BeltedGalloway_EN-IN4523698216_UHD.jpg) 
