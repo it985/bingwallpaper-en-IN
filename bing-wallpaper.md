@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-24 | [Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_EN-IN8212492005_UHD.jpg) 
+
 2023-04-23 | [Early morning shafts of light through deciduous forest, Bandhavgarh National Park, India (© plainpicture/NPL/Nick Garbutt)](https://global.bing.com/th?id=OHR.BandhavgarhNationalPark_EN-IN1237060270_UHD.jpg) 
 
 2023-04-22 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_EN-IN2991531314_UHD.jpg) 
