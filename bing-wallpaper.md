@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-29 | [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_EN-IN2861486147_UHD.jpg) 
+
 2023-04-28 | [Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_EN-IN0741084791_UHD.jpg) 
 
 2023-04-27 | [South Padre Island, Texas (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_EN-IN4631581656_UHD.jpg) 
