@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-30 | [Interior of Hawa Mahal or Palace of Winds, India (© Inti St Clair/age fotostock)](https://global.bing.com/th?id=OHR.TheHawaMahal_EN-IN8397343140_UHD.jpg) 
+
 2023-04-29 | [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_EN-IN2861486147_UHD.jpg) 
 
 2023-04-28 | [Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_EN-IN0741084791_UHD.jpg) 
