@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-01 | [Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_EN-IN8012696513_UHD.jpg) 
+
 2023-04-30 | [Interior of Hawa Mahal or Palace of Winds, India (© Inti St Clair/age fotostock)](https://global.bing.com/th?id=OHR.TheHawaMahal_EN-IN8397343140_UHD.jpg) 
 
 2023-04-29 | [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_EN-IN2861486147_UHD.jpg) 
