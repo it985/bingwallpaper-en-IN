@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-02 | [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_EN-IN1836496709_UHD.jpg) 
+
 2023-05-01 | [Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_EN-IN8012696513_UHD.jpg) 
 
 2023-04-30 | [Interior of Hawa Mahal or Palace of Winds, India (© Inti St Clair/age fotostock)](https://global.bing.com/th?id=OHR.TheHawaMahal_EN-IN8397343140_UHD.jpg) 
