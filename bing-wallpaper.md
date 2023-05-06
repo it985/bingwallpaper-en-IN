@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-07 | [Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_EN-IN5379477699_UHD.jpg) 
+
 2023-05-06 | [Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_EN-IN8139492893_UHD.jpg) 
 
 2023-05-05 | [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_EN-IN7907317303_UHD.jpg) 
