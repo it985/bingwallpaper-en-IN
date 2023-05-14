@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-15 | [Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_EN-IN0488952902_UHD.jpg) 
+
 2023-05-14 | [Waterfall in Meghalaya, India (© Indranil Aditya/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TheMeghalayaWaterfall_EN-IN6320146549_UHD.jpg) 
 
 2023-05-13 | [Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_EN-IN9950260551_UHD.jpg) 
