@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-16 | [Canoe paddling in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_EN-IN0884262623_UHD.jpg) 
+
 2023-05-15 | [Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_EN-IN0488952902_UHD.jpg) 
 
 2023-05-14 | [Waterfall in Meghalaya, India (© Indranil Aditya/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TheMeghalayaWaterfall_EN-IN6320146549_UHD.jpg) 
