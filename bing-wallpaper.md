@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-23 | [Coffee plantations, Kerala, India (© Hari Mahidhar/Shutterstock)](https://global.bing.com/th?id=OHR.KeralaCoffee_EN-IN3034159364_UHD.jpg) 
+
 2023-05-22 | [Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_EN-IN8021514039_UHD.jpg) 
 
 2023-05-21 | [River Seine, Paris, France (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_EN-IN6509712562_UHD.jpg) 
