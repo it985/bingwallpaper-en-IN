@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-28 | [Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_EN-IN0435015951_UHD.jpg) 
+
 2023-05-27 | [Plant life in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_EN-IN0114436904_UHD.jpg) 
 
 2023-05-26 | [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_EN-IN9312975486_UHD.jpg) 
