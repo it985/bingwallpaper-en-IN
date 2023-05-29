@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-30 | [Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_EN-IN1009573165_UHD.jpg) 
+
 2023-05-29 | [Ripening mangoes on a tree, India (© Tim Gainey/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Silhouetteofmangoes_EN-IN2114366270_UHD.jpg) 
 
 2023-05-28 | [Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_EN-IN0435015951_UHD.jpg) 
