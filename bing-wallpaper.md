@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-31 | [Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_EN-IN1276550407_UHD.jpg) 
+
 2023-05-30 | [Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_EN-IN1009573165_UHD.jpg) 
 
 2023-05-29 | [Ripening mangoes on a tree, India (© Tim Gainey/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Silhouetteofmangoes_EN-IN2114366270_UHD.jpg) 
