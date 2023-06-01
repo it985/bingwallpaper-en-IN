@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [Charminar during Eid celebrations, Hyderabad, India (© Prudhvi Chowdary/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.TelenganaDay_EN-IN9741280835_UHD.jpg) 
+
 2023-06-01 | [Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_EN-IN1544329394_UHD.jpg) 
 
 2023-05-31 | [Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_EN-IN1276550407_UHD.jpg) 
