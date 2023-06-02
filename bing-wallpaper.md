@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-03 | [South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_EN-IN9914136510_UHD.jpg) 
+
 2023-06-02 | [Charminar during Eid celebrations, Hyderabad, India (© Prudhvi Chowdary/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.TelenganaDay_EN-IN9741280835_UHD.jpg) 
 
 2023-06-01 | [Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_EN-IN1544329394_UHD.jpg) 
