@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-04 | [Black sand beach at Wai'anapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_EN-IN0196472229_UHD.jpg) 
+
 2023-06-03 | [South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_EN-IN9914136510_UHD.jpg) 
 
 2023-06-02 | [Charminar during Eid celebrations, Hyderabad, India (© Prudhvi Chowdary/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.TelenganaDay_EN-IN9741280835_UHD.jpg) 
