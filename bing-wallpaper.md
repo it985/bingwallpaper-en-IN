@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-10 | [Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_EN-IN6850945985_UHD.jpg) 
+
 2023-06-09 | [Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.BalloonsTurkey_EN-IN6602237514_UHD.jpg) 
 
 2023-06-08 | [Humpback whale (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_EN-IN6301739594_UHD.jpg) 
