@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [A field with thatched-roof huts, Punjab, India (© Jatin Malhotra/500px/Getty Images)](https://global.bing.com/th?id=OHR.RuralPunjab_EN-IN7128242068_UHD.jpg) 
+
 2023-06-13 | [Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_EN-IN7944133748_UHD.jpg) 
 
 2023-06-12 | [Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_EN-IN7544797420_UHD.jpg) 
