@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-20 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_EN-IN0366789941_UHD.jpg) 
+
 2023-06-19 | [Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_EN-IN9693465927_UHD.jpg) 
 
 2023-06-18 | [Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TernFather_EN-IN9272382806_UHD.jpg) 
