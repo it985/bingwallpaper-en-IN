@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)](https://global.bing.com/th?id=OHR.PeruAmazon_EN-IN1074414647_UHD.jpg) 
+
 2023-06-21 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://global.bing.com/th?id=OHR.StonehengeSalisbury_EN-IN0612027189_UHD.jpg) 
 
 2023-06-20 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_EN-IN0366789941_UHD.jpg) 
