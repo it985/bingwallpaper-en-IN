@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_EN-IN6096303745_UHD.jpg) 
+
 2023-07-01 | [Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Getty Images)](https://global.bing.com/th?id=OHR.PelotonPont_EN-IN5341162153_UHD.jpg) 
 
 2023-06-30 | [Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska, USA (© Carlos Carreno/Getty Images)](https://global.bing.com/th?id=OHR.ClamBears_EN-IN4861399396_UHD.jpg) 
