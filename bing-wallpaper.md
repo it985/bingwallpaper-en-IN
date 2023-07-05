@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-06 | [Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_EN-IN7797383705_UHD.jpg) 
+
 2023-07-05 | [Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_EN-IN7425688753_UHD.jpg) 
 
 2023-07-04 | [Grasslands National Park, Saskatchewan, Canada (© Robert Postma/Getty Images)](https://global.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_EN-IN6949225948_UHD.jpg) 
