@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-08 | [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_EN-IN8582362149_UHD.jpg) 
+
 2023-07-07 | [Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_EN-IN8131654634_UHD.jpg) 
 
 2023-07-06 | [Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_EN-IN7797383705_UHD.jpg) 
