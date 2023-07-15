@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-16 | [Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_EN-IN0667309450_UHD.jpg) 
+
 2023-07-15 | [Castelmezzano, Italy (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_EN-IN0190932709_UHD.jpg) 
 
 2023-07-14 | [The city of Passau reflected in the Danube, Bavaria, Germany (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_EN-IN9912207369_UHD.jpg) 
