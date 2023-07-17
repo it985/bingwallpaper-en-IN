@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-18 | [Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_EN-IN1236008697_UHD.jpg) 
+
 2023-07-17 | [Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_EN-IN1082460365_UHD.jpg) 
 
 2023-07-16 | [Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_EN-IN0667309450_UHD.jpg) 
