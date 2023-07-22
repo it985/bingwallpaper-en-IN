@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-23 | [Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_EN-IN2484174041_UHD.jpg) 
+
 2023-07-22 | [Hammock camping in a bald cypress tree, Florida, USA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_EN-IN2217412387_UHD.jpg) 
 
 2023-07-21 | [Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_EN-IN2026468738_UHD.jpg) 
