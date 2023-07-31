@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-01 | [Mount Foraker viewed from Denali, Denali National Park, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DenaliClimber_EN-IN8763043099_UHD.jpg) 
+
 2023-07-31 | [Rock House, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_EN-IN6324813643_UHD.jpg) 
 
 2023-07-30 | [Farmland in the Palouse, Washington, USA (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_EN-IN2524496030_UHD.jpg) 
