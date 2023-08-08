@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_EN-IN4732410788_UHD.jpg) 
+
 2023-08-08 | [Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_EN-IN7510591621_UHD.jpg) 
 
 2023-08-07 | [Bodie Island Lighthouse, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_EN-IN4440410782_UHD.jpg) 
