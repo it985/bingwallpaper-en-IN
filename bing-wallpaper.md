@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [Indian flags selling on Independence Day (© yogesh more/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IndependenceDay_EN-IN6025298765_UHD.jpg) 
+
 2023-08-14 | [Tiny gecko on leaf (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_EN-IN5833679106_UHD.jpg) 
 
 2023-08-13 | [Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_EN-IN5335133603_UHD.jpg) 
