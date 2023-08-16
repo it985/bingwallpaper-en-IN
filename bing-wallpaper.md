@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_EN-IN6021512448_UHD.jpg) 
+
 2023-08-16 | [Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_EN-IN2793637493_UHD.jpg) 
 
 2023-08-15 | [Indian flags selling on Independence Day (© yogesh more/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IndependenceDay_EN-IN6025298765_UHD.jpg) 
