@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_EN-IN0426441730_UHD.jpg) 
+
 2023-08-18 | ['Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_EN-IN0026967271_UHD.jpg) 
 
 2023-08-17 | [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_EN-IN6021512448_UHD.jpg) 
