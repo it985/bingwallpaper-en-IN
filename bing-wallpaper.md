@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-21 | [Skógafoss waterfall, Iceland (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_EN-IN4197421757_UHD.jpg) 
+
 2023-08-20 | [Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_EN-IN1058064247_UHD.jpg) 
 
 2023-08-19 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_EN-IN0426441730_UHD.jpg) 
