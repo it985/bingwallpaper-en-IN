@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-23 | [Full Moon set at dawn, behind Cenotaphs, Orchha, Madhya Pradesh, India (© Vaibhav Tripathi/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IndiaMoon_EN-IN4180677379_UHD.jpg) 
+
 2023-08-22 | [Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-IN5220329711_UHD.jpg) 
 
 2023-08-21 | [Skógafoss waterfall, Iceland (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_EN-IN4197421757_UHD.jpg) 
