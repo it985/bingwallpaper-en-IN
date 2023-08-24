@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-25 | [Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_EN-IN5386770490_UHD.jpg) 
+
 2023-08-24 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_EN-IN4396943567_UHD.jpg) 
 
 2023-08-23 | [Full Moon set at dawn, behind Cenotaphs, Orchha, Madhya Pradesh, India (© Vaibhav Tripathi/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IndiaMoon_EN-IN4180677379_UHD.jpg) 
