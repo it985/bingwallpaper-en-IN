@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-26 | [Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_EN-IN5070401270_UHD.jpg) 
+
 2023-08-25 | [Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_EN-IN5386770490_UHD.jpg) 
 
 2023-08-24 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_EN-IN4396943567_UHD.jpg) 
