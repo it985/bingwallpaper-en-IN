@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-01 | [Boat at backwaters of Kerala, India (© Goran Bogicevic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.KeralaBackwaters_EN-IN5839367689_UHD.jpg) 
+
 2023-08-31 | [Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_EN-IN8431583743_UHD.jpg) 
 
 2023-08-30 | [Rakhi or sacred thread of different types and colors (© Ritesh Shukla/Pacific Press/LightRocket via Getty Images)](https://global.bing.com/th?id=OHR.FestivalofThreads_EN-IN8502750769_UHD.jpg) 
