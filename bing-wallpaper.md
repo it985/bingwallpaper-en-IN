@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-02 | [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_EN-IN9869687889_UHD.jpg) 
+
 2023-09-01 | [Boat at backwaters of Kerala, India (© Goran Bogicevic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.KeralaBackwaters_EN-IN5839367689_UHD.jpg) 
 
 2023-08-31 | [Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_EN-IN8431583743_UHD.jpg) 
