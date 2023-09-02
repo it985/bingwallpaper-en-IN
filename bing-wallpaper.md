@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-03 | [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_EN-IN3273018831_UHD.jpg) 
+
 2023-09-02 | [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_EN-IN9869687889_UHD.jpg) 
 
 2023-09-01 | [Boat at backwaters of Kerala, India (© Goran Bogicevic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.KeralaBackwaters_EN-IN5839367689_UHD.jpg) 
