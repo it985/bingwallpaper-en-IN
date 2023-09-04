@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-05 | [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_EN-IN4201673637_UHD.jpg) 
+
 2023-09-04 | [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_EN-IN3911660804_UHD.jpg) 
 
 2023-09-03 | [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_EN-IN3273018831_UHD.jpg) 
