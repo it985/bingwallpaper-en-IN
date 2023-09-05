@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-06 | [Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_EN-IN7844383498_UHD.jpg) 
+
 2023-09-05 | [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_EN-IN4201673637_UHD.jpg) 
 
 2023-09-04 | [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_EN-IN3911660804_UHD.jpg) 
