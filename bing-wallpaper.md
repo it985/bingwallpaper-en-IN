@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-07 | [Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_EN-IN4673794115_UHD.jpg) 
+
 2023-09-06 | [Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_EN-IN7844383498_UHD.jpg) 
 
 2023-09-05 | [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_EN-IN4201673637_UHD.jpg) 
