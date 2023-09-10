@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-11 | [Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_EN-IN2929420701_UHD.jpg) 
+
 2023-09-10 | [Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_EN-IN2204335220_UHD.jpg) 
 
 2023-09-09 | [Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_EN-IN1810641935_UHD.jpg) 
