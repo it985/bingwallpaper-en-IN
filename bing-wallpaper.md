@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_EN-IN3347217370_UHD.jpg) 
+
 2023-09-11 | [Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_EN-IN2929420701_UHD.jpg) 
 
 2023-09-10 | [Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_EN-IN2204335220_UHD.jpg) 
