@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-13 | [Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_EN-IN7925715215_UHD.jpg) 
+
 2023-09-12 | [North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_EN-IN3347217370_UHD.jpg) 
 
 2023-09-11 | [Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_EN-IN2929420701_UHD.jpg) 
