@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-15 | [Inside of a temple at sunrise in India Udaipur (© Ronny Werner/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.UdaipurTemple_EN-IN8426025832_UHD.jpg) 
+
 2023-09-14 | [Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_EN-IN8500492796_UHD.jpg) 
 
 2023-09-13 | [Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_EN-IN7925715215_UHD.jpg) 
