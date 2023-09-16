@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-17 | [Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_EN-IN2474265176_UHD.jpg) 
+
 2023-09-16 | [Splügen Pass, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_EN-IN2116582162_UHD.jpg) 
 
 2023-09-15 | [Inside of a temple at sunrise in India Udaipur (© Ronny Werner/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.UdaipurTemple_EN-IN8426025832_UHD.jpg) 
