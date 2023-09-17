@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-18 | [Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_EN-IN2836427297_UHD.jpg) 
+
 2023-09-17 | [Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_EN-IN2474265176_UHD.jpg) 
 
 2023-09-16 | [Splügen Pass, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_EN-IN2116582162_UHD.jpg) 
