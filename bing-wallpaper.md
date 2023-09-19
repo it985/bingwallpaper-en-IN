@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-20 | [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_EN-IN5681529896_UHD.jpg) 
+
 2023-09-19 | [Detail of an old Ganesh sculpture, Karnataka (© Bluberries/Getty Images)](https://global.bing.com/th?id=OHR.GaneshSculpture_EN-IN1533675520_UHD.jpg) 
 
 2023-09-18 | [Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_EN-IN2836427297_UHD.jpg) 
