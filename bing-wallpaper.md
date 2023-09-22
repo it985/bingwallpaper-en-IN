@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_EN-IN8525185865_UHD.jpg) 
+
 2023-09-22 | [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_EN-IN8354170690_UHD.jpg) 
 
 2023-09-21 | [Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_EN-IN2326669499_UHD.jpg) 
