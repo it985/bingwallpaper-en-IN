@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_EN-IN9154221521_UHD.jpg) 
+
 2023-09-24 | [The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_EN-IN1199703740_UHD.jpg) 
 
 2023-09-23 | [Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_EN-IN8525185865_UHD.jpg) 
