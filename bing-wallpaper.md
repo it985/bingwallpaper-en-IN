@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-26 | [Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_EN-IN9722074210_UHD.jpg) 
+
 2023-09-25 | [Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_EN-IN9154221521_UHD.jpg) 
 
 2023-09-24 | [The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_EN-IN1199703740_UHD.jpg) 
