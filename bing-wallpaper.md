@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-30 | [Fall colours in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_EN-IN7343206221_UHD.jpg) 
+
 2023-09-29 | [The Sangameswara Temple is part of the the former capital Kisuvolal of the Chalukya Dynasty (© Frank Bienewald/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SangameswaraTemple_EN-IN2298301203_UHD.jpg) 
 
 2023-09-28 | [Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_EN-IN7369609777_UHD.jpg) 
