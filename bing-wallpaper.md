@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-02 | [Mahatma Gandhi statue in Chennai at sunset with dramatic sky (© cornfield/Shutterstock)](https://global.bing.com/th?id=OHR.MahatmaGandhi_EN-IN0914326367_UHD.jpg) 
+
 2023-10-01 | [Lake Bled from Osojnica viewpoint at sunrise, Slovenia (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_EN-IN4873630074_UHD.jpg) 
 
 2023-09-30 | [Fall colours in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_EN-IN7343206221_UHD.jpg) 
