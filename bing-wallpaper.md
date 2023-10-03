@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-04 | [Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_EN-IN5707966238_UHD.jpg) 
+
 2023-10-03 | [Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)](https://global.bing.com/th?id=OHR.WhitsundaySwirl_EN-IN5486180596_UHD.jpg) 
 
 2023-10-02 | [Mahatma Gandhi statue in Chennai at sunset with dramatic sky (© cornfield/Shutterstock)](https://global.bing.com/th?id=OHR.MahatmaGandhi_EN-IN0914326367_UHD.jpg) 
