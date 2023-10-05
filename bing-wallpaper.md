@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-06 | [Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_EN-IN2385233459_UHD.jpg) 
+
 2023-10-05 | [Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_EN-IN2482357761_UHD.jpg) 
 
 2023-10-04 | [Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_EN-IN5707966238_UHD.jpg) 
