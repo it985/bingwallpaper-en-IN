@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-09 | [Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GwaliorFortMP_EN-IN4137933501_UHD.jpg) 
+
 2023-10-08 | [Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_EN-IN3159038721_UHD.jpg) 
 
 2023-10-07 | [Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_EN-IN2755577856_UHD.jpg) 
