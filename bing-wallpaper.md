@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_EN-IN4707739912_UHD.jpg) 
+
 2023-10-09 | [Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GwaliorFortMP_EN-IN4137933501_UHD.jpg) 
 
 2023-10-08 | [Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_EN-IN3159038721_UHD.jpg) 
