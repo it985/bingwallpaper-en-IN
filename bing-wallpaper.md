@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-11 | [The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_EN-IN5898727477_UHD.jpg) 
+
 2023-10-10 | [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_EN-IN4707739912_UHD.jpg) 
 
 2023-10-09 | [Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GwaliorFortMP_EN-IN4137933501_UHD.jpg) 
