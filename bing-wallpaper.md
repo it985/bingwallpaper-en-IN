@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | [European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_EN-IN7225406586_UHD.jpg) 
+
 2023-10-14 | ['Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_EN-IN6870021525_UHD.jpg) 
 
 2023-10-13 | [Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_EN-IN6591847395_UHD.jpg) 
