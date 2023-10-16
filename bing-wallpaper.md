@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-17 | [Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_EN-IN8150896497_UHD.jpg) 
+
 2023-10-16 | [Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_EN-IN7563060765_UHD.jpg) 
 
 2023-10-15 | [European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_EN-IN7225406586_UHD.jpg) 
