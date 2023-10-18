@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-19 | [Idols of Hindu gods and goddesses in Kumortuli, Kolkata, India.   (© Rob Pinney/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GoddessDurga_EN-IN0729980140_UHD.jpg) 
+
 2023-10-18 | [Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_EN-IN7392777987_UHD.jpg) 
 
 2023-10-17 | [Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_EN-IN8150896497_UHD.jpg) 
