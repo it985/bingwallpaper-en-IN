@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-24 | [Dussehra festival celebration in India (© im a photographer and an artist/Getty Images)](https://global.bing.com/th?id=OHR.VijayadashamiFestival_EN-IN5330705675_UHD.jpg) 
+
 2023-10-23 | [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_EN-IN9531761030_UHD.jpg) 
 
 2023-10-22 | [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_EN-IN4923523850_UHD.jpg) 
