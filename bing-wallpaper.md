@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_EN-IN5738946935_UHD.jpg) 
+
 2023-10-24 | [Dussehra festival celebration in India (© im a photographer and an artist/Getty Images)](https://global.bing.com/th?id=OHR.VijayadashamiFestival_EN-IN5330705675_UHD.jpg) 
 
 2023-10-23 | [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_EN-IN9531761030_UHD.jpg) 
