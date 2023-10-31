@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-01 | [Haut-Barr Castle, Alsace, France (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_EN-IN3887832280_UHD.jpg) 
+
 2023-10-31 | [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_EN-IN7089088416_UHD.jpg) 
 
 2023-10-30 | [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://global.bing.com/th?id=OHR.AutumnRaven_EN-IN6850233265_UHD.jpg) 
