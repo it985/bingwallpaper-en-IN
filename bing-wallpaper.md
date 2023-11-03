@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-04 | [American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_EN-IN1261455789_UHD.jpg) 
+
 2023-11-03 | [Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_EN-IN0921605291_UHD.jpg) 
 
 2023-11-02 | [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_EN-IN7646082145_UHD.jpg) 
