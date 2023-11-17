@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-18 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://global.bing.com/th?id=OHR.MilsePolarBear_EN-IN7189578814_UHD.jpg) 
+
 2023-11-17 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_EN-IN6923977079_UHD.jpg) 
 
 2023-11-16 | [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_EN-IN8777145681_UHD.jpg) 
