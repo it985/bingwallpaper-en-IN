@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-21 | [Grey seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://global.bing.com/th?id=OHR.HelloSeal_EN-IN4183768158_UHD.jpg) 
+
 2023-11-20 | [Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)](https://global.bing.com/th?id=OHR.ChapmanAdventure_EN-IN7844405204_UHD.jpg) 
 
 2023-11-19 | [Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.FrozenBog_EN-IN7475675289_UHD.jpg) 
