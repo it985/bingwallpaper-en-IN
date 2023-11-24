@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-25 | [Toledo, Spain (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_EN-IN6966241723_UHD.jpg) 
+
 2023-11-24 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_EN-IN9360638768_UHD.jpg) 
 
 2023-11-23 | [Beautiful foggy winter sunrise at Victoria Memorial, Kolkata, India. (© DebashisK/Shutterstock)](https://global.bing.com/th?id=OHR.VictoriaMemorialIndia_EN-IN2578716156_UHD.jpg) 
