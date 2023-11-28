@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-29 | [Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_EN-IN9264601140_UHD.jpg) 
+
 2023-11-28 | [Lush green landscape of Varandha Ghat,Bhor,Maharashtra, India. (© AmitRane1975/Getty Images)](https://global.bing.com/th?id=OHR.VarandhaGhatBhor_EN-IN3063436345_UHD.jpg) 
 
 2023-11-27 | [Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_EN-IN8200017926_UHD.jpg) 
