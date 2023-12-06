@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-07 | [A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_EN-IN1889492687_UHD.jpg) 
+
 2023-12-06 | [Beach with bungalow and coconut palm trees at Palolem in Goa, India. (© Pikoso.kz/Shutterstock)](https://global.bing.com/th?id=OHR.PalolemGoa_EN-IN1818092671_UHD.jpg) 
 
 2023-12-05 | [Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_EN-IN1720960592_UHD.jpg) 
