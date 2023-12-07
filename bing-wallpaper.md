@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-08 | [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_EN-IN9636725530_UHD.jpg) 
+
 2023-12-07 | [A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_EN-IN1889492687_UHD.jpg) 
 
 2023-12-06 | [Beach with bungalow and coconut palm trees at Palolem in Goa, India. (© Pikoso.kz/Shutterstock)](https://global.bing.com/th?id=OHR.PalolemGoa_EN-IN1818092671_UHD.jpg) 
