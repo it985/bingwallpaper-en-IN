@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_EN-IN6130690163_UHD.jpg) 
+
 2023-12-09 | [India gate war memorial designed by Sir Edwin Lutyens in New Delhi, India. (© Amit kg/Shutterstock)](https://global.bing.com/th?id=OHR.IndiaGate_EN-IN7190380885_UHD.jpg) 
 
 2023-12-08 | [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_EN-IN9636725530_UHD.jpg) 
