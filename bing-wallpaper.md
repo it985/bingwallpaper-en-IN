@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_EN-IN5922835342_UHD.jpg) 
+
 2023-12-22 | [Red Fort Delhi historic monument at sunrise with flying pigeons (© Roop Dey/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RedFortDelhi_EN-IN3982983147_UHD.jpg) 
 
 2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_EN-IN3699052507_UHD.jpg) 
