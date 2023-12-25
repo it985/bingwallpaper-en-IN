@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Carved stories of King Ashoka on gate of Sanchi Stupa, Madhya Pradesh, India (© Dinodia Photos/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SanchiStupaMP_EN-IN0719147985_UHD.jpg) 
+
 2023-12-25 | [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_EN-IN0496241827_UHD.jpg) 
 
 2023-12-24 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_EN-IN6293418304_UHD.jpg) 
