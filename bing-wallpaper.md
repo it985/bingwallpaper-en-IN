@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-28 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_EN-IN1483671844_UHD.jpg) 
+
 2023-12-27 | [Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_EN-IN0930050121_UHD.jpg) 
 
 2023-12-26 | [Carved stories of King Ashoka on gate of Sanchi Stupa, Madhya Pradesh, India (© Dinodia Photos/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SanchiStupaMP_EN-IN0719147985_UHD.jpg) 
