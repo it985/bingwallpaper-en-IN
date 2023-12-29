@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-30 | [Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_EN-IN3654080004_UHD.jpg) 
+
 2023-12-29 | [Oud-West neighborhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_EN-IN3729532166_UHD.jpg) 
 
 2023-12-28 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_EN-IN1483671844_UHD.jpg) 
