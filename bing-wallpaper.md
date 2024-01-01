@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_EN-IN4523335748_UHD.jpg) 
+
 2024-01-01 | [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_EN-IN4256691389_UHD.jpg) 
 
 2023-12-31 | [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://global.bing.com/th?id=OHR.ThailandNewYears_EN-IN4004784311_UHD.jpg) 
