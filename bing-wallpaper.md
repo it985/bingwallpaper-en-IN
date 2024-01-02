@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-03 | [Virupaksha temple in the ancient city of Vijayanagar at Hampi, Karnataka, India. (© leshiy985/shutterstock)](https://global.bing.com/th?id=OHR.VirupakshaTempleIN_EN-IN4741302858_UHD.jpg) 
+
 2024-01-02 | [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_EN-IN4523335748_UHD.jpg) 
 
 2024-01-01 | [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_EN-IN4256691389_UHD.jpg) 
