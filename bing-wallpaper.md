@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-05 | [International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_EN-IN5886314487_UHD.jpg) 
+
 2024-01-04 | [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_EN-IN5018210556_UHD.jpg) 
 
 2024-01-03 | [Virupaksha temple in the ancient city of Vijayanagar at Hampi, Karnataka, India. (© leshiy985/shutterstock)](https://global.bing.com/th?id=OHR.VirupakshaTempleIN_EN-IN4741302858_UHD.jpg) 
