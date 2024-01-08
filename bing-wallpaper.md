@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Gayathri Reservoir, near Chitradurga, Karnataka, India. (© Amith Nag Photography/Getty images)](https://global.bing.com/th?id=OHR.GayathriReservoir_EN-IN7178721819_UHD.jpg) 
+
 2024-01-08 | [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_EN-IN9489085308_UHD.jpg) 
 
 2024-01-07 | [Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_EN-IN6479219710_UHD.jpg) 
