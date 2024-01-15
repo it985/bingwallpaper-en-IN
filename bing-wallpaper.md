@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-16 | [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://global.bing.com/th?id=OHR.LakeLouise_EN-IN3194487086_UHD.jpg) 
+
 2024-01-15 | [Kite flying in Ahmedabad during the last hour of Uttarayan (© Saumil Shah - flickr.com/saumil/Getty images)](https://global.bing.com/th?id=OHR.MakarSankrantiKites_EN-IN1385639662_UHD.jpg) 
 
 2024-01-14 | [Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.HokkaidoSwans_EN-IN2668123953_UHD.jpg) 
