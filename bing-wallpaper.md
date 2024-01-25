@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [Illuminated President's Estate of India, New Delhi, India (© PRABHASROY/iStock/Getty Images)](https://global.bing.com/th?id=OHR.RepublicDayIN_EN-IN0100062780_UHD.jpg) 
+
 2024-01-25 | [Agra Fort, Uttar Pradesh (© Roop_Dey/Shutterstock)](https://global.bing.com/th?id=OHR.AgraFortUP_EN-IN3840610789_UHD.jpg) 
 
 2024-01-24 | [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_EN-IN3783601162_UHD.jpg) 
