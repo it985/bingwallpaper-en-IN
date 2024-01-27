@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-28 | [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://global.bing.com/th?id=OHR.ChannelOutback_EN-IN1616131874_UHD.jpg) 
+
 2024-01-27 | [Northern hawk-owl (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_EN-IN6306608472_UHD.jpg) 
 
 2024-01-26 | [Illuminated President's Estate of India, New Delhi, India (© PRABHASROY/iStock/Getty Images)](https://global.bing.com/th?id=OHR.RepublicDayIN_EN-IN0100062780_UHD.jpg) 
