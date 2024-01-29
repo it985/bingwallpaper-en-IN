@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-30 | [The biggest Mahatma Gandhi statue in Pondicherry (© Geraint Rowland Photography/Getty Images)](https://global.bing.com/th?id=OHR.MartyrsDayIndia_EN-IN0212578144_UHD.jpg) 
+
 2024-01-29 | [Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_EN-IN2127634667_UHD.jpg) 
 
 2024-01-28 | [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://global.bing.com/th?id=OHR.ChannelOutback_EN-IN1616131874_UHD.jpg) 
