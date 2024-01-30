@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-31 | [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraMother_EN-IN5092330040_UHD.jpg) 
+
 2024-01-30 | [The biggest Mahatma Gandhi statue in Pondicherry (© Geraint Rowland Photography/Getty Images)](https://global.bing.com/th?id=OHR.MartyrsDayIndia_EN-IN0212578144_UHD.jpg) 
 
 2024-01-29 | [Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_EN-IN2127634667_UHD.jpg) 
