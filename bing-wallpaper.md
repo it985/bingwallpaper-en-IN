@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://global.bing.com/th?id=OHR.StJamesPool_EN-IN9666211879_UHD.jpg) 
+
 2024-02-06 | [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.LakeTahoeRock_EN-IN9092668370_UHD.jpg) 
 
 2024-02-05 | [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://global.bing.com/th?id=OHR.WesternMonarchs_EN-IN8519228057_UHD.jpg) 
