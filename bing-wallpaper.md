@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-12 | [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_EN-IN9689128271_UHD.jpg) 
+
 2024-02-11 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.FolegandrosGreece_EN-IN9382800968_UHD.jpg) 
 
 2024-02-10 | [Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://global.bing.com/th?id=OHR.ChinaDragon_EN-IN9122034629_UHD.jpg) 
