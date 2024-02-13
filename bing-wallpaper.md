@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Vasant Panchmi celebration in Noida, India (© Burhaan Kinu/Hindustan Times via Getty Images)](https://global.bing.com/th?id=OHR.VasantPanchamiIN_EN-IN0210941348_UHD.jpg) 
+
 2024-02-13 | [Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)](https://global.bing.com/th?id=OHR.MarignyBeads_EN-IN9891323909_UHD.jpg) 
 
 2024-02-12 | [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_EN-IN9689128271_UHD.jpg) 
