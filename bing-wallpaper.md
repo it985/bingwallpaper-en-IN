@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_EN-IN0575498831_UHD.jpg) 
+
 2024-02-15 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_EN-IN0488110772_UHD.jpg) 
 
 2024-02-14 | [Vasant Panchmi celebration in Noida, India (© Burhaan Kinu/Hindustan Times via Getty Images)](https://global.bing.com/th?id=OHR.VasantPanchamiIN_EN-IN0210941348_UHD.jpg) 
