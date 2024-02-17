@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_EN-IN1231273818_UHD.jpg) 
+
 2024-02-17 | [Kailasa temple in Ellora caves complex in India (© mazzzur/Getty Images)](https://global.bing.com/th?id=OHR.KailasTempleEllora_EN-IN9221534487_UHD.jpg) 
 
 2024-02-16 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_EN-IN0575498831_UHD.jpg) 
