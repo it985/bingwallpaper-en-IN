@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-27 | [Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.PolarBearCubs_EN-IN7268694911_UHD.jpg) 
+
 2024-02-26 | [Tiger family a stroll one early morning at Ranthambhore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://global.bing.com/th?id=OHR.TigerMom_EN-IN2824299934_UHD.jpg) 
 
 2024-02-25 | [Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_EN-IN1992031596_UHD.jpg) 
