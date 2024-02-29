@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-01 | [The holy city of Varanasi, India (© Jesse Rockwell/Shutterstock)](https://global.bing.com/th?id=OHR.HolyVaranasi_EN-IN2569299872_UHD.jpg) 
+
 2024-02-29 | [Eurasian red squirrel (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_EN-IN2638979538_UHD.jpg) 
 
 2024-02-28 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://global.bing.com/th?id=OHR.BamburghCastleUK_EN-IN2760491461_UHD.jpg) 
