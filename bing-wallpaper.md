@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_EN-IN0487333046_UHD.jpg) 
+
 2024-03-01 | [The holy city of Varanasi, India (© Jesse Rockwell/Shutterstock)](https://global.bing.com/th?id=OHR.HolyVaranasi_EN-IN2569299872_UHD.jpg) 
 
 2024-02-29 | [Eurasian red squirrel (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_EN-IN2638979538_UHD.jpg) 
