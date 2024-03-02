@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-03 | [Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)](https://global.bing.com/th?id=OHR.KrugerLeopard_EN-IN2497124555_UHD.jpg) 
+
 2024-03-02 | [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_EN-IN0487333046_UHD.jpg) 
 
 2024-03-01 | [The holy city of Varanasi, India (© Jesse Rockwell/Shutterstock)](https://global.bing.com/th?id=OHR.HolyVaranasi_EN-IN2569299872_UHD.jpg) 
