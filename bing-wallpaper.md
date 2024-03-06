@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-07 | [Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)](https://global.bing.com/th?id=OHR.TarragonaSpain_EN-IN2183884361_UHD.jpg) 
+
 2024-03-06 | [Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WahclellaFalls_EN-IN2266702818_UHD.jpg) 
 
 2024-03-05 | [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://global.bing.com/th?id=OHR.BangkokCircle_EN-IN0487845274_UHD.jpg) 
