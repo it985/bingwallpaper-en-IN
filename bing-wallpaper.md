@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-10 | [Elephants crossing river in Jim Corbett National Park, India (© ABHILASH VISWA PICASSO/Shutterstock)](https://global.bing.com/th?id=OHR.MorningElephants_EN-IN1473865657_UHD.jpg) 
+
 2024-03-09 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_EN-IN1019261604_UHD.jpg) 
 
 2024-03-08 | [Tate Modern lit up on International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TateLightUp_EN-IN0743144601_UHD.jpg) 
