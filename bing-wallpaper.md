@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-12 | [Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BryceSnow_EN-IN1627515596_UHD.jpg) 
+
 2024-03-11 | [A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)](https://global.bing.com/th?id=OHR.SleepyKoala_EN-IN1567307093_UHD.jpg) 
 
 2024-03-10 | [Elephants crossing river in Jim Corbett National Park, India (© ABHILASH VISWA PICASSO/Shutterstock)](https://global.bing.com/th?id=OHR.MorningElephants_EN-IN1473865657_UHD.jpg) 
