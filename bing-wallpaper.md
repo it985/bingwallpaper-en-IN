@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-22 | [Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)](https://global.bing.com/th?id=OHR.WaikatoWater_EN-IN0496434558_UHD.jpg) 
+
 2024-03-21 | [Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BwindiNationalForest_EN-IN2480914473_UHD.jpg) 
 
 2024-03-20 | [Cave Dale and Peveril Castle in Castleton, Peak District National Park, Derbyshire, England (© James Osmond/Alamy)](https://global.bing.com/th?id=OHR.SpringCaveDale_EN-IN2419088160_UHD.jpg) 
