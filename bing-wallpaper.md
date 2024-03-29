@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_EN-IN4281443663_UHD.jpg) 
+
 2024-03-29 | [South Stack Lighthouse at sunset, Holyhead, Wales, UK (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_EN-IN3270278933_UHD.jpg) 
 
 2024-03-28 | [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_EN-IN2648888544_UHD.jpg) 
