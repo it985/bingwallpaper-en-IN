@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-01 | ['Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_EN-IN6555201202_UHD.jpg) 
+
 2024-03-31 | [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_EN-IN6319733019_UHD.jpg) 
 
 2024-03-30 | [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_EN-IN4281443663_UHD.jpg) 
