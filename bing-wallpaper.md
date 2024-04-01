@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_EN-IN7251097604_UHD.jpg) 
+
 2024-04-01 | ['Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_EN-IN6555201202_UHD.jpg) 
 
 2024-03-31 | [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_EN-IN6319733019_UHD.jpg) 
