@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-03 | [Tea plantation near Munnar, Kerala (© Peter Zelei Images/Moment/Getty Images)](https://global.bing.com/th?id=OHR.TeaPlantation_EN-IN7563100977_UHD.jpg) 
+
 2024-04-02 | [Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_EN-IN7251097604_UHD.jpg) 
 
 2024-04-01 | ['Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_EN-IN6555201202_UHD.jpg) 
