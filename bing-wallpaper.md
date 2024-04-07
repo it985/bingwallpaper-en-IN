@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-08 | [Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)](https://global.bing.com/th?id=OHR.OwlSiblings_EN-IN5156349531_UHD.jpg) 
+
 2024-04-07 | [North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.BeaverDenali_EN-IN4459281854_UHD.jpg) 
 
 2024-04-06 | [Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)](https://global.bing.com/th?id=OHR.JapanHimeji_EN-IN7756531371_UHD.jpg) 
