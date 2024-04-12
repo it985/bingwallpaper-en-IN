@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://global.bing.com/th?id=OHR.SpringApple_EN-IN6919337165_UHD.jpg) 
+
 2024-04-12 | [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_EN-IN6303798919_UHD.jpg) 
 
 2024-04-11 | [Muslims gather to offer prayers during Eid al-Fitr at Jama Masjid in New Delhi (© MONEY SHARMA/Getty Images)](https://global.bing.com/th?id=OHR.EidPrayers_EN-IN0060751560_UHD.jpg) 
