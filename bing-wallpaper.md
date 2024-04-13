@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_EN-IN9555671935_UHD.jpg) 
+
 2024-04-13 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://global.bing.com/th?id=OHR.SpringApple_EN-IN6919337165_UHD.jpg) 
 
 2024-04-12 | [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_EN-IN6303798919_UHD.jpg) 
