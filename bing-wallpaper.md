@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-16 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://global.bing.com/th?id=OHR.UnionSquareNYC_EN-IN8922742719_UHD.jpg) 
+
 2024-04-15 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_EN-IN8566227276_UHD.jpg) 
 
 2024-04-14 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_EN-IN9555671935_UHD.jpg) 
