@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-17 | [Ram Mandir, Ayodhya, Uttar Pradesh (© Ritesh Shukla/Stringer/Getty Images)](https://global.bing.com/th?id=OHR.RamaNavami_EN-IN9596495490_UHD.jpg) 
+
 2024-04-16 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://global.bing.com/th?id=OHR.UnionSquareNYC_EN-IN8922742719_UHD.jpg) 
 
 2024-04-15 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_EN-IN8566227276_UHD.jpg) 
