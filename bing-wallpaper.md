@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-21 | [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://global.bing.com/th?id=OHR.CadesCove_EN-IN8065236190_UHD.jpg) 
+
 2024-04-20 | [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://global.bing.com/th?id=OHR.YellowstoneGeyser_EN-IN7850427265_UHD.jpg) 
 
 2024-04-19 | [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_EN-IN7374836671_UHD.jpg) 
