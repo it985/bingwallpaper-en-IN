@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_EN-IN8692006945_UHD.jpg) 
+
 2024-04-22 | [Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_EN-IN8345337323_UHD.jpg) 
 
 2024-04-21 | [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://global.bing.com/th?id=OHR.CadesCove_EN-IN8065236190_UHD.jpg) 
