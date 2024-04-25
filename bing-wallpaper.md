@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-26 | [Aerial view of mangrove islands near Kundapura, Karnataka (© Amith Nag Photography/Getty Images)](https://global.bing.com/th?id=OHR.MangroveIslands_EN-IN9832664879_UHD.jpg) 
+
 2024-04-25 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_EN-IN9440987055_UHD.jpg) 
 
 2024-04-24 | [White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_EN-IN9010046711_UHD.jpg) 
