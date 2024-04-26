@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)](https://global.bing.com/th?id=OHR.LeucisticHummingbird_EN-IN0052515058_UHD.jpg) 
+
 2024-04-26 | [Aerial view of mangrove islands near Kundapura, Karnataka (© Amith Nag Photography/Getty Images)](https://global.bing.com/th?id=OHR.MangroveIslands_EN-IN9832664879_UHD.jpg) 
 
 2024-04-25 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_EN-IN9440987055_UHD.jpg) 
