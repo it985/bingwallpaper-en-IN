@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-28 | [El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GuadalupeTexas_EN-IN9443629617_UHD.jpg) 
+
 2024-04-27 | [Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)](https://global.bing.com/th?id=OHR.LeucisticHummingbird_EN-IN0052515058_UHD.jpg) 
 
 2024-04-26 | [Aerial view of mangrove islands near Kundapura, Karnataka (© Amith Nag Photography/Getty Images)](https://global.bing.com/th?id=OHR.MangroveIslands_EN-IN9832664879_UHD.jpg) 
