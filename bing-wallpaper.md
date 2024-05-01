@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.CratersOfTheMoon_EN-IN2412374583_UHD.jpg) 
+
 2024-05-01 | [Maharashtra, Mumbai, Victoria Terminus railway station (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.MaharashtraDayIN_EN-IN1070524150_UHD.jpg) 
 
 2024-04-30 | [Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_EN-IN0742393676_UHD.jpg) 
