@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-04 | [The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_EN-IN0109731817_UHD.jpg) 
+
 2024-05-03 | [Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://global.bing.com/th?id=OHR.SonoranSpring_EN-IN9627232224_UHD.jpg) 
 
 2024-05-02 | [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.CratersOfTheMoon_EN-IN2412374583_UHD.jpg) 
