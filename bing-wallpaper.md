@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)](https://global.bing.com/th?id=OHR.LittleDuckling_EN-IN1177865327_UHD.jpg) 
+
 2024-05-06 | [The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-IN0923215557_UHD.jpg) 
 
 2024-05-05 | [Beautiful aerial view of Kerala (© ebin francis/Shutterstock)](https://global.bing.com/th?id=OHR.KeralaRiver_EN-IN0661487977_UHD.jpg) 
