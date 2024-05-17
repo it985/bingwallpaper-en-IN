@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-18 | [Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://global.bing.com/th?id=OHR.MuseumWhale_EN-IN4765329631_UHD.jpg) 
+
 2024-05-17 | [A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TarangireElephants_EN-IN4532502651_UHD.jpg) 
 
 2024-05-16 | ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_EN-IN3415387303_UHD.jpg) 
