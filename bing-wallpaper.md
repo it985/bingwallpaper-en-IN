@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_EN-IN6409781415_UHD.jpg) 
+
 2024-05-20 | [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://global.bing.com/th?id=OHR.HoneycombBee_EN-IN5264559093_UHD.jpg) 
 
 2024-05-19 | [Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.VernazzaItaly_EN-IN5043240233_UHD.jpg) 
