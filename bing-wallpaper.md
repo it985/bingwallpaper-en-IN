@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Tasmanian snow gum, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.SnowGumTasmania_EN-IN6798155593_UHD.jpg) 
+
 2024-05-21 | [Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_EN-IN6409781415_UHD.jpg) 
 
 2024-05-20 | [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://global.bing.com/th?id=OHR.HoneycombBee_EN-IN5264559093_UHD.jpg) 
