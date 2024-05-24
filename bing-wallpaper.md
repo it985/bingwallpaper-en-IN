@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_EN-IN4913242303_UHD.jpg) 
+
 2024-05-24 | [Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_EN-IN4789684794_UHD.jpg) 
 
 2024-05-23 | [Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://global.bing.com/th?id=OHR.IndianStarTortoise_EN-IN7003674028_UHD.jpg) 
