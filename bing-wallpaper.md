@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-28 | [Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://global.bing.com/th?id=OHR.MeteoraMonastery_EN-IN0876656339_UHD.jpg) 
+
 2024-05-27 | [Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)](https://global.bing.com/th?id=OHR.ShivaDarasuram_EN-IN5077554474_UHD.jpg) 
 
 2024-05-26 | [Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.MethowWildflowers_EN-IN4970374222_UHD.jpg) 
