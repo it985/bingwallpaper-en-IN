@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [Jaswant Thada and Mehrangarh Fort in Jodhpur city in Rajasthan, India (© Jackyenjoyphotography/Getty Images)](https://global.bing.com/th?id=OHR.JaswantThadaIN_EN-IN5851391718_UHD.jpg) 
+
 2024-06-02 | [Scenery around Hampi, Karnataka (© Holly Barber/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IndiaHampi_EN-IN5466875133_UHD.jpg) 
 
 2024-06-01 | [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_EN-IN4842306720_UHD.jpg) 
