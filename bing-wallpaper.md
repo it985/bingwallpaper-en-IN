@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_EN-IN6496543904_UHD.jpg) 
+
 2024-06-04 | [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_EN-IN6283551210_UHD.jpg) 
 
 2024-06-03 | [Jaswant Thada and Mehrangarh Fort in Jodhpur city in Rajasthan, India (© Jackyenjoyphotography/Getty Images)](https://global.bing.com/th?id=OHR.JaswantThadaIN_EN-IN5851391718_UHD.jpg) 
