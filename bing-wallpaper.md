@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-08 | [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_EN-IN7273907470_UHD.jpg) 
+
 2024-06-07 | [Family of humpback whales, Dutch Harbour, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_EN-IN7046950046_UHD.jpg) 
 
 2024-06-06 | [Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://global.bing.com/th?id=OHR.LesBravesNormandy_EN-IN6765304384_UHD.jpg) 
