@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-09 | [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_EN-IN8176973788_UHD.jpg) 
+
 2024-06-08 | [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_EN-IN7273907470_UHD.jpg) 
 
 2024-06-07 | [Family of humpback whales, Dutch Harbour, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_EN-IN7046950046_UHD.jpg) 
