@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-12 | [Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_EN-IN9317716190_UHD.jpg) 
+
 2024-06-11 | [Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_EN-IN8918609883_UHD.jpg) 
 
 2024-06-10 | [Osaka at night, Japan (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_EN-IN8651020175_UHD.jpg) 
