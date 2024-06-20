@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-21 | [Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RishikeshYoga_EN-IN7223104789_UHD.jpg) 
+
 2024-06-20 | [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://global.bing.com/th?id=OHR.KokinoMacedonia_EN-IN6950788998_UHD.jpg) 
 
 2024-06-19 | [Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://global.bing.com/th?id=OHR.LewaGiraffe_EN-IN6464213350_UHD.jpg) 
