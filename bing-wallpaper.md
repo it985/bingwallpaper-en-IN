@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-22 | [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://global.bing.com/th?id=OHR.BrazilRainforest_EN-IN7651435144_UHD.jpg) 
+
 2024-06-21 | [Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RishikeshYoga_EN-IN7223104789_UHD.jpg) 
 
 2024-06-20 | [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://global.bing.com/th?id=OHR.KokinoMacedonia_EN-IN6950788998_UHD.jpg) 
