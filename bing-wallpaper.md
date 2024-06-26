@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-27 | [Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_EN-IN0160356722_UHD.jpg) 
+
 2024-06-26 | [Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://global.bing.com/th?id=OHR.CardinalfishAnemone_EN-IN9820574473_UHD.jpg) 
 
 2024-06-25 | [The Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_EN-IN8852870354_UHD.jpg) 
