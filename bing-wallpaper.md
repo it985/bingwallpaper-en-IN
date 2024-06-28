@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-29 | [Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TourCorsica_EN-IN1515947386_UHD.jpg) 
+
 2024-06-28 | [Pride flags at Christopher Street Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://global.bing.com/th?id=OHR.ChristopherPark_EN-IN0638219094_UHD.jpg) 
 
 2024-06-27 | [Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_EN-IN0160356722_UHD.jpg) 
