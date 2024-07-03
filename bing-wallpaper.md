@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-04 | [Dam, lake and mountains in Kerala (© Pranavan Shoots/Shutterstock)](https://global.bing.com/th?id=OHR.KeralaSummer_EN-IN8339171901_UHD.jpg) 
+
 2024-07-03 | [Meerkat family (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_EN-IN8030536163_UHD.jpg) 
 
 2024-07-02 | [Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_EN-IN7625105640_UHD.jpg) 
