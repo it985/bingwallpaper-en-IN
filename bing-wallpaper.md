@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_EN-IN8682200105_UHD.jpg) 
+
 2024-07-04 | [Dam, lake and mountains in Kerala (© Pranavan Shoots/Shutterstock)](https://global.bing.com/th?id=OHR.KeralaSummer_EN-IN8339171901_UHD.jpg) 
 
 2024-07-03 | [Meerkat family (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_EN-IN8030536163_UHD.jpg) 
