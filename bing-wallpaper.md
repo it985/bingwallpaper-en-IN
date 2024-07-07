@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBlueberries_EN-IN9622921626_UHD.jpg) 
+
 2024-07-07 | [Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_EN-IN9423003053_UHD.jpg) 
 
 2024-07-06 | [Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)](https://global.bing.com/th?id=OHR.ConwyRiver_EN-IN8974486695_UHD.jpg) 
