@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-10 | [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.CollaredAracari_EN-IN5723111528_UHD.jpg) 
+
 2024-07-09 | [Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_EN-IN9969060729_UHD.jpg) 
 
 2024-07-08 | [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBlueberries_EN-IN9622921626_UHD.jpg) 
