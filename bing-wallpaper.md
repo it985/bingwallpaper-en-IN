@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-17 | [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_EN-IN3166503485_UHD.jpg) 
+
 2024-07-16 | [Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockCamping_EN-IN2367011958_UHD.jpg) 
 
 2024-07-15 | [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_EN-IN9733056165_UHD.jpg) 
