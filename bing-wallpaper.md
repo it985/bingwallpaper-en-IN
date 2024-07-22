@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-23 | [Methoni Castle, Messinia, Greece (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_EN-IN6995431738_UHD.jpg) 
+
 2024-07-22 | [Ellora Caves near Aurangabad, Maharashtra (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.ElloraCavesMH_EN-IN9734367387_UHD.jpg) 
 
 2024-07-21 | [Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.ZanzibarBoats_EN-IN4365742596_UHD.jpg) 
