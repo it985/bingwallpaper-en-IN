@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-28 | [Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://global.bing.com/th?id=OHR.BeachHutsSweden_EN-IN3846650845_UHD.jpg) 
+
 2024-07-27 | [Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_EN-IN4193963890_UHD.jpg) 
 
 2024-07-26 | [Defence personnel pay tribute to Kargil martyrs (© Hindustan Times/Contributor/Getty images)](https://global.bing.com/th?id=OHR.KargilMemorial_EN-IN8142573327_UHD.jpg) 
