@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-01 | [Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.KaptaiLake_EN-IN2191483743_UHD.jpg) 
+
 2024-07-31 | [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.HoodoosBryce_EN-IN0026851942_UHD.jpg) 
 
 2024-07-30 | [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.GimignanoTuscany_EN-IN4247147407_UHD.jpg) 
