@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://global.bing.com/th?id=OHR.ImpalaOxpecker_EN-IN3497314730_UHD.jpg) 
+
 2024-08-03 | [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_EN-IN3139596004_UHD.jpg) 
 
 2024-08-02 | [Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://global.bing.com/th?id=OHR.TrunkBay_EN-IN2631653470_UHD.jpg) 
