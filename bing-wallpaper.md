@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_EN-IN5640527051_UHD.jpg) 
+
 2024-08-08 | [Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_EN-IN6300276493_UHD.jpg) 
 
 2024-08-07 | [St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_EN-IN5667907086_UHD.jpg) 
