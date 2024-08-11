@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-12 | [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_EN-IN6966931510_UHD.jpg) 
+
 2024-08-11 | [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_EN-IN6327643260_UHD.jpg) 
 
 2024-08-10 | [Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JoshuaTreeNP_EN-IN4447271729_UHD.jpg) 
