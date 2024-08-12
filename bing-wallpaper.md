@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-13 | [Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)](https://global.bing.com/th?id=OHR.DugiOtokCroatia_EN-IN7497189787_UHD.jpg) 
+
 2024-08-12 | [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_EN-IN6966931510_UHD.jpg) 
 
 2024-08-11 | [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_EN-IN6327643260_UHD.jpg) 
