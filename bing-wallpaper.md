@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-16 | [Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://global.bing.com/th?id=OHR.JapanRollerCoaster_EN-IN8774755618_UHD.jpg) 
+
 2024-08-15 | [Red Fort Delhi front view with Indian National Flag (© Roop Dey/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RedFortID_EN-IN8417084718_UHD.jpg) 
 
 2024-08-14 | [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.WatarrkaLizard_EN-IN4528148622_UHD.jpg) 
