@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-20 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_EN-IN0048035143_UHD.jpg) 
+
 2024-08-19 | [Festival of Raksha Bandhan (© Dinodia Photo/Getty Images)](https://global.bing.com/th?id=OHR.FestivalRakhi_EN-IN9632575091_UHD.jpg) 
 
 2024-08-18 | [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_EN-IN9332234048_UHD.jpg) 
