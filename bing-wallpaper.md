@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-23 | [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_EN-IN2102190312_UHD.jpg) 
+
 2024-08-22 | [Aerial view of Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.OceanCityMD_EN-IN0871145545_UHD.jpg) 
 
 2024-08-21 | [Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_EN-IN0321873603_UHD.jpg) 
