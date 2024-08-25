@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PalmyraAtoll_EN-IN9487861231_UHD.jpg) 
+
 2024-08-25 | [Arched parapets of the Golconda Fort in Hyderabad, Telangana (© Manab Sen/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GolcondaFort_EN-IN3908727493_UHD.jpg) 
 
 2024-08-24 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_EN-IN9245397268_UHD.jpg) 
