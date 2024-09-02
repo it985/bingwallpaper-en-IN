@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-09)
-![](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&w=1000)Today: [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.RhinoMother_EN-IN4208210232_UHD.jpg&w=1000)Today: [Rhino mother and calf, Kaziranga National Park, Assam (© ePhotocorp/Getty Images)](https://cn.bing.com/th?id=OHR.RhinoMother_EN-IN4208210232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-01 [download 4k](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.RhinoMother_EN-IN4208210232_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-02 [download 4k](https://cn.bing.com/th?id=OHR.RhinoMother_EN-IN4208210232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-01 [download 4k](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-IN2201451554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
