@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-04 | [Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-IN2854960722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-03 | [Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-IN2610017297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-02 | [Rhino mother and calf, Kaziranga National Park, Assam (© ePhotocorp/Getty Images)](https://cn.bing.com/th?id=OHR.RhinoMother_EN-IN4208210232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
