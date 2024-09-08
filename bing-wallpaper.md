@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-IN6522849602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [Idols of Lord Ganesha for sale in Gulbai tekra, Ahmedabad (© Priti Bhatt/Getty Images)](https://cn.bing.com/th?id=OHR.GaneshaIdol_EN-IN0545844303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-IN6316433789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
