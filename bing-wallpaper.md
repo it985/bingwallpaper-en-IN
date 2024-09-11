@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-11 | [Akshardham Temple at night (© Sean3810/iStock/Getty Images Plus/Getty Images)](https://cn.bing.com/th?id=OHR.AkshardhamDL_EN-IN1118148366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-10 | [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-IN7053832547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-09 | [Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-IN6797774904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
