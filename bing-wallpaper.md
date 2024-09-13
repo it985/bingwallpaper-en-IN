@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-IN7769414761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-IN7368159128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [Akshardham Temple at night (© Sean3810/iStock/Getty Images Plus/Getty Images)](https://cn.bing.com/th?id=OHR.AkshardhamDL_EN-IN1118148366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
