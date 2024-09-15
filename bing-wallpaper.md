@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-15 | [Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-IN8727128444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-14 | [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-IN8068654010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-13 | [Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-IN7769414761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
