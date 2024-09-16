@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-16 | [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-IN8975505298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-15 | [Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-IN8727128444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-14 | [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-IN8068654010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
