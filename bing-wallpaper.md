@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-19 | [Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-IN4927123173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-18 | [Gujō Hachiman Castle, Gifu Prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-IN9529217040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-17 | [Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-IN2546411546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
