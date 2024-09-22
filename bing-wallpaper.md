@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-22 | [Bada Bagh complex in Jaisalmer, Rajasthan (© Meinzahn/Getty Images)](https://cn.bing.com/th?id=OHR.BadaBagh_EN-IN0375946006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-21 | [Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-IN6726777088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-20 | [Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-IN6376239162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
