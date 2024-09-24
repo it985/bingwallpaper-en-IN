@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-24 | [Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-IN1234167290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-23 | [Sea otter, Prince William Sound, Alaska, USA (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-IN0982120054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-22 | [Bada Bagh complex in Jaisalmer, Rajasthan (© Meinzahn/Getty Images)](https://cn.bing.com/th?id=OHR.BadaBagh_EN-IN0375946006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
