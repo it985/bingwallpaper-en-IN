@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-26 | [Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-IN1849827364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-25 | [Giant sequoias, Sequoia National Park, California, USA (© Galyna Andrushko/Shutterstock)](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-IN1537226741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-24 | [Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-IN1234167290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
