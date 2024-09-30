@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-30 | [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-IN4352146367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-29 | [West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-IN3322601847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-28 | [Beach at sunrise, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-IN2946245730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
