@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-06 | [Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-IN7315826699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-05 | [African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-IN6887174228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-04 | [Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://cn.bing.com/th?id=OHR.EuropaMoon_EN-IN7952428847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
