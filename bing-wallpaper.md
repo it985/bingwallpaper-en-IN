@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-09 | [Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AspensColorado_EN-IN9587734366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-08 | [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-IN8264456645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-07 | [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-IN7738424525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
