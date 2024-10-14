@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-14 | [Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)](https://cn.bing.com/th?id=OHR.CocoBeach_EN-IN4417301861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-13 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-IN3915163511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-12 | [Mysuru Palace during Dasara, Karnataka (© Fameleaf Photos/Getty Images)](https://cn.bing.com/th?id=OHR.DussehraMysore_EN-IN0426603332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
