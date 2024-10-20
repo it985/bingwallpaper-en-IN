@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-20 | [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-IN6528412181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-19 | [Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-IN5970079053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-18 | [Autumn in Central Park, Manhattan, New York, USA (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-IN5680267984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
