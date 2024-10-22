@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-22 | [Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://cn.bing.com/th?id=OHR.MonsterDoor_EN-IN9699696476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-21 | [Cypress trees in George L. Smith State Park, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-IN6952918183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-20 | [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-IN6528412181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
