@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-25 | [Golden Temple at dusk, Amritsar (© Vincent Boisvert, all right reserved/Getty Images)](https://cn.bing.com/th?id=OHR.GoldenTempleIN_EN-IN0200918572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-24 | [Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BodieCalifornia_EN-IN0325721047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-23 | [Madame Sherri Forest and the remnant of an old castle, New Hampshire, USA (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-IN8531009013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
