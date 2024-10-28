@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-28 | [Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-IN1738754206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-27 | [Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-IN1521700160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-26 | [Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.GhostForest_EN-IN3485758200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
