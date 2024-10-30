@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-30 | [View of Edinburgh Castle from a churchyard in Scotland, United Kingdom (© Chris Dorney/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-IN2114348431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-29 | [Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-IN1904350496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-28 | [Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-IN1738754206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
