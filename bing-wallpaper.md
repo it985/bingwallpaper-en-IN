@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-01 | [Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)](https://cn.bing.com/th?id=OHR.LencoisMaranhao_EN-IN6380365409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-31 | [Diwali celebrations (© Umang Gajjar/Getty Images)](https://cn.bing.com/th?id=OHR.FireworksDiwali_EN-IN6255593826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-30 | [View of Edinburgh Castle from a churchyard in Scotland, United Kingdom (© Chris Dorney/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-IN2114348431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
