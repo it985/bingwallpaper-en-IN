@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-02 | [American bison in Yellowstone National Park, Wyoming, USA (© Ian Shive/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BisonYellowstone_EN-IN4855239793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-01 | [Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)](https://cn.bing.com/th?id=OHR.LencoisMaranhao_EN-IN6380365409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-31 | [Diwali celebrations (© Umang Gajjar/Getty Images)](https://cn.bing.com/th?id=OHR.FireworksDiwali_EN-IN6255593826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
