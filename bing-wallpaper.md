@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-06 | [Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-IN6380183906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-05 | [Ranakpur Jain temple, Ranakpur, Rajasthan (© Anne-Marie Palmer/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.AdinathTemple_EN-IN6085140917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-04 | [Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)](https://cn.bing.com/th?id=OHR.CumbriaAutumn_EN-IN5406739257_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
