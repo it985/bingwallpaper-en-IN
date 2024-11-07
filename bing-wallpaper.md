@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-07 | [Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-IN6734242410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-06 | [Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.ShiShiBeach_EN-IN6380183906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-05 | [Ranakpur Jain temple, Ranakpur, Rajasthan (© Anne-Marie Palmer/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.AdinathTemple_EN-IN6085140917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
