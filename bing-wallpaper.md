@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-11 | [Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://cn.bing.com/th?id=OHR.Banff24_EN-IN9205670476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-10 | [Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-IN8899301061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-09 | [Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-IN8452456680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
