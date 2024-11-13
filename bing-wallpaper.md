@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-13 | [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-IN9809129785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [Aerial view of vineyards, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_EN-IN7604889650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://cn.bing.com/th?id=OHR.Banff24_EN-IN9205670476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
