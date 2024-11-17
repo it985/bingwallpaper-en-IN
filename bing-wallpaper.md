@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-17 | [Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://cn.bing.com/th?id=OHR.RedStag_EN-IN5545228267_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-16 | [Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-IN5299828357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-15 | [Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-IN5031761378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
