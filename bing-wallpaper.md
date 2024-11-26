@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-26 | [Dr. B.R. Ambedkar statue, Dharwad, Karnataka (© AnilD/Shutterstock)](https://cn.bing.com/th?id=OHR.ConstitutionDay_EN-IN3100148262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-25 | [Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-IN4832251197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-25 | [Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-IN2702242576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
