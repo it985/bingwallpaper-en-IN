@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-IN3221435828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [Murudeshwara Temple, Murdeshwar, Karnataka (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MurdeshwarTemple_EN-IN3830652229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-IN2471885756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
