@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-12)
-![](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&w=1000)Today: [Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.SnowMoose_EN-IN2006473446_UHD.jpg&w=1000)Today: [Female moose, Denali National Park, Alaska, USA (© Cavan Images/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.SnowMoose_EN-IN2006473446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-01 [download 4k](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.SnowMoose_EN-IN2006473446_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-02 [download 4k](https://cn.bing.com/th?id=OHR.SnowMoose_EN-IN2006473446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-12-01 [download 4k](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-IN1897026898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
