@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-04 | [Indian Navy soldiers in front of the Gateway of India, Mumbai (© Danish Siddiqui/REUTERS)](https://cn.bing.com/th?id=OHR.NavyDayIN_EN-IN0092273094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-03 | [Sattais Katcheri (Court of 27 pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_EN-IN9564090681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-02 | [Female moose, Denali National Park, Alaska, USA (© Cavan Images/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.SnowMoose_EN-IN2006473446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
