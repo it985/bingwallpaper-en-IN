@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-05 | [Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-IN2578939152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-04 | [Indian Navy soldiers in front of the Gateway of India, Mumbai (© Danish Siddiqui/REUTERS)](https://cn.bing.com/th?id=OHR.NavyDayIN_EN-IN0092273094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-03 | [Sattais Katcheri (Court of 27 pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_EN-IN9564090681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
