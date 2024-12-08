@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_EN-IN2799650925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Jahangir Mahal inside the Orchha Fort complex, Orchha, Madhya Pradesh (© Mukul Banerjee Photography/Getty Images)](https://cn.bing.com/th?id=OHR.OrchhaFort_EN-IN5765082916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-IN5970913809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
