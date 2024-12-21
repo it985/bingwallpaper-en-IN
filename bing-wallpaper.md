@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-21 | [Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.SolsticeHalo_EN-IN0859597164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-20 | [Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-IN8131344842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-19 | [Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-IN1994356758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
