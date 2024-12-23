@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-23 | [Dhamek Stupa, Sarnath, Uttar Pradesh (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DhamekStupa_EN-IN0403888448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-22 | [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-IN1061631248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-21 | [Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.SolsticeHalo_EN-IN0859597164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
