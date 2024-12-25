@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-25 | [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-IN0167081195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-24 | [Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-IN0656724477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-23 | [Dhamek Stupa, Sarnath, Uttar Pradesh (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DhamekStupa_EN-IN0403888448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
