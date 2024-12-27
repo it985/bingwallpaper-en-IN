@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-27 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-IN8178018929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-26 | [Christmas lights at Mousehole harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-IN6968521248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-25 | [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-IN0167081195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
