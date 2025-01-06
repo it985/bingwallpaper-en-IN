@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-06 | [Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-IN9380198974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-05 | [Pushkarani, Sri Krishna Temple, Hampi, Karnataka (© ImagesofIndia/Shutterstock)](https://cn.bing.com/th?id=OHR.PushkarniTank_EN-IN9828404964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-04 | [Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-IN7892338335_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
