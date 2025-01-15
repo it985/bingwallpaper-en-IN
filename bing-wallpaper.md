@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-15 | [Chital, Bandhavgarh National Park, Madhya Pradesh (© James Warwick/Getty Images)](https://cn.bing.com/th?id=OHR.DeerBuck_EN-IN3553465734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-14 | [Sky full of kites (© anand purohit/Getty Images)](https://cn.bing.com/th?id=OHR.SkyKites_EN-IN7504370489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-13 | [Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.CoastalWales_EN-IN7925850635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
