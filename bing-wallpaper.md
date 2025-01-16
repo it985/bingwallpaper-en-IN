@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-IN4954136235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-16 | [High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-IN4100662742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-15 | [Chital, Bandhavgarh National Park, Madhya Pradesh (© James Warwick/Getty Images)](https://cn.bing.com/th?id=OHR.DeerBuck_EN-IN3553465734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
