@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-20 | [Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)](https://cn.bing.com/th?id=OHR.CadizSpain_EN-IN5354642054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-19 | [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-IN4839715567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-18 | [Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-IN4617317381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
