@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-21 | [Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-IN5567594638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-20 | [Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)](https://cn.bing.com/th?id=OHR.CadizSpain_EN-IN5354642054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-19 | [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://cn.bing.com/th?id=OHR.NeptunesGrotto_EN-IN4839715567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
