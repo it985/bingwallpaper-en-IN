@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [Alappuzha, Kerala (© Gautam Krishna/Getty Images)](https://cn.bing.com/th?id=OHR.AlappuzhaWaters_EN-IN6155439001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [European beech forest in Belgium (© Philippe Moes/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-IN2659852695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-IN2514350674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
