@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-05 | [Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)](https://cn.bing.com/th?id=OHR.WhararikiBeach_EN-IN3664421729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-04 | [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://cn.bing.com/th?id=OHR.GoldenBridge_EN-IN3517654384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-03 | [Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England, United Kingdom (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-IN3282548733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
