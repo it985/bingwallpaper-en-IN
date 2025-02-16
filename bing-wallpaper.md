@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-16 | [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-IN0304994084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-15 | [Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/shutterstock)](https://cn.bing.com/th?id=OHR.Misotsuchi2025_EN-IN0138753388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-14 | [Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinLove_EN-IN9647996808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
