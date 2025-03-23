@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-23 | [Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-IN8540918083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-22 | [Nalanda mahavihara, Bihar (© bambam kumar jha/Getty Images)](https://cn.bing.com/th?id=OHR.NalandaRuins_EN-IN5140897796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-21 | [Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.DanumValley_EN-IN8272296990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
