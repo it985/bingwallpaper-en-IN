@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-24 | [Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-IN8930309129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-23 | [Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-IN8540918083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-22 | [Nalanda mahavihara, Bihar (© bambam kumar jha/Getty Images)](https://cn.bing.com/th?id=OHR.NalandaRuins_EN-IN5140897796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
