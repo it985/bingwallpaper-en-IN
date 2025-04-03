@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-03 | [Thiruvalluvar Statue, Kanyakumari, Tamil Nadu (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.KanyakumariSunrise_EN-IN5756215519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-02 | [Sandstone formations in the badlands near Caineville, Utah, United States (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-IN2081384937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-01 | [Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.TicanFrog_EN-IN0941028255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
