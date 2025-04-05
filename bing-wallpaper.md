@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-05 | [Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_EN-IN9783802550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-04 | [Humayun's Tomb, Delhi (© SoumenNath/Getty Images)](https://cn.bing.com/th?id=OHR.HumayunsTomb_EN-IN9625838128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-03 | [Thiruvalluvar Statue, Kanyakumari, Tamil Nadu (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.KanyakumariSunrise_EN-IN5756215519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
