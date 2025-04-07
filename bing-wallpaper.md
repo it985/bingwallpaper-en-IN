@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-07 | [North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverDay_EN-IN0064816773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-06 | [Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedDolphins_EN-IN9911189149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-05 | [Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_EN-IN9783802550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
