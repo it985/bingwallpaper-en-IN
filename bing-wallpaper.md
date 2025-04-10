@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-10 | [Red fox cubs near their den (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.LittleFoxes_EN-IN0436750405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-09 | [Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNaxos_EN-IN8174628613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-08 | [Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://cn.bing.com/th?id=OHR.ParoTsechu_EN-IN0196975136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
