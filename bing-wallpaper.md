@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-16 | [Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.KachinaBridge_EN-IN8735275886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-15 | [Beach art on Sauveterre Beach by Zarpo, Les Sables-d'Olonne, Vendee, France (© Hemis/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BeachArt_EN-IN5781333917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-14 | [Ambedkar Memorial Park, Lucknow, Uttar Pradesh (© aquarajiv/Getty Images)](https://cn.bing.com/th?id=OHR.AmbedkarMemorialIN_EN-IN5190883644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
