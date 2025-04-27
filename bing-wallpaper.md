@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-27 | [Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-IN2014709938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-26 | [Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)](https://cn.bing.com/th?id=OHR.BrucePeninsula_EN-IN1803718083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-25 | [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-IN1652511877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
