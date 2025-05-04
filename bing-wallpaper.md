@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-04 | [Mysuru Palace, Mysuru, Karnataka (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MysorePalace_EN-IN3228585823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-03 | [The Milky Way framed by Double Arch in Arches National Park, Utah, United States (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-IN0648210386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-02 | [Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-IN0370124301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
