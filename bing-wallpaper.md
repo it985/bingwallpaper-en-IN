@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-06 | [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-IN3642714628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-05 | [Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-IN3454088296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-04 | [Mysuru Palace, Mysuru, Karnataka (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MysorePalace_EN-IN3228585823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
