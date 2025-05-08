@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-08 | [Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-IN2213858489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-07 | [Statue of Rabindranath Tagore at Rabindra Sarobar, West Bengal (© suprabhat/Shutterstock)](https://cn.bing.com/th?id=OHR.RabindraJayantiIN_EN-IN3289019397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-06 | [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-IN3642714628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
