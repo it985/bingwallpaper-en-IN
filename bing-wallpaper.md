@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-16 | [Hawa Mahal, Jaipur, Rajasthan (© Travel Wild/Getty Images)](https://cn.bing.com/th?id=OHR.HawaMahalIN_EN-IN6116640436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-15 | [Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.LondonParliament_EN-IN4475440939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-14 | [Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.SardiniaFlavia_EN-IN6165553665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
