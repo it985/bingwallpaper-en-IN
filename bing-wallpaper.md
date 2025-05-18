@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-18 | ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.DufyRoom_EN-IN8856962782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-17 | [A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-IN7231112177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-16 | [Hawa Mahal, Jaipur, Rajasthan (© Travel Wild/Getty Images)](https://cn.bing.com/th?id=OHR.HawaMahalIN_EN-IN6116640436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
