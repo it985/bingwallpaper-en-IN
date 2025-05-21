@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-21 | [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_EN-IN6965632313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-20 | [Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_EN-IN9271954892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-19 | [Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MountHamilton_EN-IN9057650660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
