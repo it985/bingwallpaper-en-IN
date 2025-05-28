@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-28 | [Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpOtter_EN-IN8622946515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-27 | [Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.MonaValePool_EN-IN8062779367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-26 | [Agrasen Ki Baoli, Connaught Place, New Delhi (© Neha Gupta/Getty Images)](https://cn.bing.com/th?id=OHR.AgrasenKiBaoli_EN-IN6234444944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
