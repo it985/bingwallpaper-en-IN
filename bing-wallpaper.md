@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [Telangana Secretariat, Hyderabad, Telangana (© NOAH SEELAM/Contributor/Getty Images)](https://cn.bing.com/th?id=OHR.NewSecretariat_EN-IN9926784114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [Barrier reef off Grande Terre, New Caledonia, France (© Karsten Wrobel/Getty Images)](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-IN3346781319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [Knuthöjdsmossen nature reserve, Sweden (© Sven Halling/DEEPOL/plainpicture)](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-IN3145271969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
