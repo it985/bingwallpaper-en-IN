@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-04 | [Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)](https://cn.bing.com/th?id=OHR.CalaLuna_EN-IN7826704026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-03 | [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-IN7690250347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-02 | [Telangana Secretariat, Hyderabad, Telangana (© NOAH SEELAM/Contributor/Getty Images)](https://cn.bing.com/th?id=OHR.NewSecretariat_EN-IN9926784114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
