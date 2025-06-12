@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-12 | [Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-IN8688758463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-11 | [Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-IN8571629692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-10 | [Aerial view of Everglades National Park, Florida, United States (© Robert DelVecchio - OcuDrone/Getty Images)](https://cn.bing.com/th?id=OHR.AerialEverglades_EN-IN8448560441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
