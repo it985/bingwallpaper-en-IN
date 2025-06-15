@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-15 | [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_EN-IN8515759531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-14 | [Cinque Torri, Dolomiti, Cortina d’Ampezzo, Belluno, Veneto, Italy (© usabin/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitiEstate_EN-IN7937552367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-13 | [Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAzores_EN-IN2966282396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
