@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-21 | [Lakshman Jhula, Rishikesh, Uttarakhand (© tscreationz/Shutterstock)](https://cn.bing.com/th?id=OHR.LakshmanJhula_EN-IN9788352654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-20 | [Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)](https://cn.bing.com/th?id=OHR.IcelandSolstice_EN-IN9654538547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-19 | [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-IN6391269206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
